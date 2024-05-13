@@ -1,6 +1,6 @@
 # !(KIJKEN-GraTis) Union SG - Club Brugge live op tv en livestream ,Club Brugge tegen Union SG live kijken, Pro League 13 mei 2024
 =
-
+!(KIJKEN-GraTis) Union SG - Club Brugge live op tv en livestream ,Club Brugge tegen Union SG live kijken, Pro League 13 mei 2024
 Vanavond vindt de dertigste thuismatch van het seizoen voor Club plaats tegen Union St.-Gilloise. Je helemaal voorbereiden op deze wedstrijd? Dat doe je met de Club Facts!Club Brugge KV speelde dit seizoen in 3 wedstrijden tegen Royale Union Sint-Gillis. Momenteel staat Club Brugge KV op de 2e plaats, terwijl Royale Union Saint-Gilloise op de 3e plaats staat. Wil je de best beoordeelde speler van beide teams vergelijken?
 Het is de 93e ontmoeting tussen Club en Union in eerste klasse. De 45 vorige thuiswedstrijden hadden 22 zeges, 10 draws en 13 nederlagen als resultaat. Het is al de 6e ontmoeting tussen beide teams dit seizoen. In de Champions' Play-Offs ging Club met 1-2 winnen in het Dudenpark na doelpunten van Vetlesen en Meijer.
 
